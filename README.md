@@ -1,2 +1,4 @@
 # hello-world
-hello i m khor shee khey!!!!!!!!!!CS student
+hello i m hello my friend
+why do birds suddenly appear
+by the time, you walk by
